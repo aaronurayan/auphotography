@@ -1,2 +1,2 @@
 # Aaron Urayan Photography  
-Home | Gallery | Blog | About | Contact
+Home|Gallery|Blog|About|Contact
